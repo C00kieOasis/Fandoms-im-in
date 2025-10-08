@@ -1,2 +1,7 @@
 # Fandoms-im-in
 guys who even checks these?
+
+
+Deltarune, sonic the hedgehog, dress to impress, outcome memories, undertale, persona, ace attorney, forsaken, umamusume, limbus company, something evil will happen, mouthwashing, dead by daylight, deciet 1+2, peak, kingdom hearts, needy streamer overload, 60 seconds, alice madness returns, among us, bayonetta, battle block theatre, bendy and the ink machiene, the binding of issac, castle crashers, honkai star rail, genshin impact, infinity niki, castlevania, content warning, leathal company, cult of the lamb, vocaloid, cuphead, danganrompa, a date with death, dave the diver, detroit become human, devour, phasmophobia, doki doki literature club, dont starve together, stardew valley, celeste, final fantasy, five nights are freddy's, friday the 13th the game, catherine, grounded, a hat in time, hitman, hollow knight, i expect you to die 1+2+3, inscryption, little misfortune, little nightmares, lockdown protocol, melatonin, monster prom, ori and the blind forest, overcooked, peak, piko park, rec room, r.e.p.o, resident evil, the sims, helltaker, slime rancher, the stanely parable, subnautica, sucker for love, until dawn, the quarry, cookie run kingdom, panty and stocking, the legend of zelda, mario, saiki k, pokemon, komi cant communicate, and probably more lowkey....
+
+![flat,750x,075,f-pad,750x1000,f8f8f8](https://github.com/user-attachments/assets/85f167ff-b9a2-456d-aa2d-1216d514927f)
